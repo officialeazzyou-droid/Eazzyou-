@@ -1,0 +1,2 @@
+# Eazzyou-
+Rate Card Eazzyou💗
